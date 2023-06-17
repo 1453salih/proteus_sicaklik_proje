@@ -1,1 +1,1 @@
-# proteus_sicaklik_proje
+# Allah razı olsun deseniz yeterli
